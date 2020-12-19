@@ -3,4 +3,4 @@ course from Jonas
 
 1.gussing number
 
-![]("https://gph.is/g/4g7G995")
+![](https://media.giphy.com/media/llg7TTaWkmYqBKWuUQ/giphy.gif)
